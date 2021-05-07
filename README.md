@@ -1,4 +1,4 @@
-## Paul A. Beata
+## Paul A. Beata, Ph.D.
 _Research Scientist_
 
 👋 Hi, on GitHub I’m @pbeata, but you can call me Paul.   
